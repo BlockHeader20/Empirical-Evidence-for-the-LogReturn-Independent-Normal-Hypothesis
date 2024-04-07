@@ -1,0 +1,1 @@
+# Empirical-Evidence-for-the-LogReturn-Normal-Hypothesis
